@@ -1,1 +1,1 @@
-mobilesssistforcryptomarkets.github.io
+mobileassistforcryptomarkets.github.io
